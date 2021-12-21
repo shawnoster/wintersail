@@ -23,9 +23,9 @@ You are there to be asked very nicely by the resort owner to please ask an ancie
 
 ## Cool Story Ya, But So, Now Ya?
 
-- Think of who is waking up hungover with 20-something=level energy levels, so fully pumped for what's ahead. Young, old, scarred, innocent, pure stereotype, defining archetype, drunk fuck-e-teer (like a puppeteer, ken?), what made you stop your before and what made you agree to help bounce a stubborn guest?
-- Dive into the books, reach into your imagination, get whacky, go full random, etc. All things on the table, I am story and person driven, using math to direct.
-- Send me your tiki-village bouncer character from D&D, invite me to your bar, or come to my house, and let's roll your character. Help me build this.
+- Think of waking up hungover yet pumped for what's ahead. Young, old, scarred, innocent, pure stereotype, defining archetype, drunk fuck-e-teer (like a puppeteer, ken?), what made you stop your before and what made you agree to help bounce a stubborn guest?
+- Dive into the books, reach into your imagination, get whacky, go full random, pull from your favorite show and book, etc. All things on the table, I am story and person driven, using math to direct.
+- Send me your tiki-village bouncer character from [D&D Beyond](https://www.dndbeyond.com/), invite me to your bar, or come to my house, and let's roll your character. Help me build this.
 
 ## House Rules
 
