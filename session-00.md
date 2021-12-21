@@ -2,7 +2,7 @@
 
 > Something makes it through the constant throbbing in your head, something annoying, and hard, and slightly... sticky.
 >
-> _"Get up ya and great paradise on your knees, because after the way you drank last night I know you're not standing!"_, a rather smug looking Orc Pirate Captain bellows at a deck full of traumatized and haggard group of folk. His grin only broadens as the first, but not nearly the last, of his esteemed guests succumbs to the Fey Flip, over the side please.
+> _"Get up ya grand heros, and greet paradise on your knees, because after the way you drank last night I know you're not standing!"_, a rather smug looking Orc Pirate Captain bellows at a deck full of traumatized and haggard group of folk. His grin only broadens as the first, but not nearly the last, of his esteemed guests succumbs to the Fey Flip, over the side please.
 >
 > Crawling to the rail you barely make out a sandy cove, a loose collection of stalls, shops, humble two and three story homes, large resorts, and secluded villas nestled amid green, dense jungle. It isn't until you adjust to the light, and the booze still sloshing in your stomach, that you notice both the village and forest is backed by a massive, gleaming, almost pure glacier, humbly towering above all.
 
@@ -23,9 +23,9 @@ You are there to be asked very nicely by the resort owner to please ask an ancie
 
 ## Cool Story Ya, But So, Now Ya?
 
-- Think of who is waking up hungover with 20-something=level energy levels, so fully pumped for what's ahead. Young, old, scarred, innocent, pure stereotype, defining archetype, drunk fuck-e-teer (like a puppeteer, ken?), what made you stop your before and what made you agree to help bounce a stubborn guest?
-- Dive into the books, reach into your imagination, get whacky, go full random, etc. All things on the table, I am story and person driven, using math to direct.
-- Send me your tiki-village bouncer character from D&D, invite me to your bar, or come to my house, and let's roll your character. Help me build this.
+- Think of waking up hungover yet pumped for what's ahead. Young, old, scarred, innocent, pure stereotype, defining archetype, drunk fuck-e-teer (like a puppeteer, ken?), what made you stop your before and what made you agree to help bounce a stubborn guest?
+- Dive into the books, reach into your imagination, get whacky, go full random, pull from your favorite show and book, etc. All things on the table, I am story and person driven, using math to direct.
+- Send me your tiki-village bouncer character from [D&D Beyond](https://www.dndbeyond.com/), invite me to your bar, or come to my house, and let's roll your character. Help me build this.
 
 ## House Rules
 
