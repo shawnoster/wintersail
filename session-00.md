@@ -2,7 +2,7 @@
 
 > Something makes it through the constant throbbing in your head, something annoying, and hard, and slightly... sticky.
 >
-> _"Get up ya and great paradise on your knees, because after the way you drank last night I know you're not standing!"_, a rather smug looking Orc Pirate Captain bellows at a deck full of traumatized and haggard group of folk. His grin only broadens as the first, but not nearly the last, of his esteemed guests succumbs to the Fey Flip, over the side please.
+> _"Get up ya grand heros, and greet paradise on your knees, because after the way you drank last night I know you're not standing!"_, a rather smug looking Orc Pirate Captain bellows at a deck full of traumatized and haggard group of folk. His grin only broadens as the first, but not nearly the last, of his esteemed guests succumbs to the Fey Flip, over the side please.
 >
 > Crawling to the rail you barely make out a sandy cove, a loose collection of stalls, shops, humble two and three story homes, large resorts, and secluded villas nestled amid green, dense jungle. It isn't until you adjust to the light, and the booze still sloshing in your stomach, that you notice both the village and forest is backed by a massive, gleaming, almost pure glacier, humbly towering above all.
 
