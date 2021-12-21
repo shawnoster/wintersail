@@ -4,12 +4,12 @@ tags:
     - npc
 categories:
     - NPC
-lastmod: '2021-12-21T21:40:13.763Z'
+lastmod: '2021-12-21T21:46:11.996Z'
 ---
 
 # Snazzy, the Orc Pirate Captain
 
-Lvl 9 Retired Mercenary Orc - Turned Glorified Ferry Captain - Goodish/Scoundrel
+Lvl 9 Retired Mercenary Orc - He/Him - Turned Glorified Ferry Captain - Goodish/Scoundrel
 
 ## Overview
 
