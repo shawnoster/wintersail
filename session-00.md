@@ -19,14 +19,13 @@
 - This conflicts with a long standing reservation by the Order of Tides clerics, who meet here every 100 years, for A Reason.
 - The Rumor is that the The Reason is Something Evil Being Released Into the World, that causes destruction. No one at the bars Snazzy goes to knows much more than that, though everyone has their own favorite reasons.
 
-You are there to be asked very nicely by the resort owner to please ask an ancient (ooops, I shoulda charged for that) dragon turtle to leave the only waters that are keeping her calm enough to not table flip the coastal shelf in order to make room for something a bunch of nervous clerics are fairly insistant must happen in order for the continued safety of the world (and their positive Y'rp reviews in the Book of Guilds, The GiveAFuck Edition, Highly Rated By _The Fucking Pissed Off Dragon Gnome. Figure That Out Yourself, the One and Grandest._ It really was a fuck-all title)
+You are there to be asked very nicely by the resort owner to please ask an ancient (ooops, I shoulda charged for that) dragon turtle to leave the only waters that are keeping her calm enough to not table flip the coastal shelf in order to make room for something a bunch of nervous clerics are fairly insistent must happen in order for the continued safety of the world (and their positive Y'rp reviews in the Book of Guilds, The GiveAFuck Edition, Highly Rated By _The Fucking Pissed Off Dragon Gnome. Figure That Out Yourself, the One and Grandest._ It really was a fuck-all title)
 
 ## Cool Story Ya, But So, Now Ya?
 
 - Think of who is waking up hungover with 20-something=level energy levels, so fully pumped for what's ahead. Young, old, scarred, innocent, pure stereotype, defining archetype, drunk fuck-e-teer (like a puppeteer, ken?), what made you stop your before and what made you agree to help bounce a stubborn guest?
 - Dive into the books, reach into your imagination, get whacky, go full random, etc. All things on the table, I am story and person driven, using math to direct.
 - Send me your tiki-village bouncer character from D&D, invite me to your bar, or come to my house, and let's roll your character. Help me build this.
-
 
 ## House Rules
 
