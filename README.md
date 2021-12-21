@@ -4,7 +4,7 @@ Wintersail is a 5e D&D one-shot adventure for 1st level characters.
 
 ## Getting Started
 
-Start with Session #0 and follow the instructions.
+Start with [Session #0](/session-00.md) and follow the instructions.
 
 ## Communications
 
